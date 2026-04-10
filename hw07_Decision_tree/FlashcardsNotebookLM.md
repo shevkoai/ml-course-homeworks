@@ -1,0 +1,1 @@
+Ссылка на созданные мной флэш-карты в НоутбукеЛМ: https://notebooklm.google.com/notebook/4917e0bd-7179-4797-a3ec-d2895812f7f8
